@@ -1,1 +1,1 @@
-# untuk-manusia-kesayanganku
+# untuk manusia kesayanganku
